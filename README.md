@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Agawu93
+- 👋 Hi, I’m Agu
 - 👀 I’m interested in stickers
-- 🌱 I’m currently learning Procreate
+- 🌱 I’m currently learning Procreate on iPad
 - 📫 How to reach me ...
 
